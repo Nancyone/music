@@ -13,7 +13,7 @@ study by yourself
 ## 乐理知识入门
 
 ### 书籍
- + [听音乐  罗杰·凯密恩著](http://item.jd.com/10096357.html) 古典音乐入门书籍 (适合小白，很系统的书籍) [脑图链接](https://www.processon.com/mindmap/5b67bcc1e4b0be50ead0c29e)
+ + [听音乐  罗杰·凯密恩著](http://item.jd.com/10096357.html) 古典音乐入门书籍 (适合小白，很系统的书籍) [脑图链接](https://www.processon.com/view/link/5b6bfb50e4b025cf493df9e9)
  
  + [音乐理论基础  李重光著](https://baike.baidu.com/item/%E9%9F%B3%E4%B9%90%E7%90%86%E8%AE%BA%E5%9F%BA%E7%A1%80) 五线谱的乐理知识
  
